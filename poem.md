@@ -1,30 +1,30 @@
-# Retrospect
-'T was just this time last year I died.  
-I know I heard the corn,  
-When I was carried by the farms, --  
-It had the tassels on.  
+# Hope
 
-I thought how yellow it would look. 
-When Richard went to mill;  
-And then I wanted to get out,  
-But something held my will.  
+_Hope_ is the thing with feathers
 
-I thought just how red apples wedged. 
-The stubble's joints between;  
-And carts went stooping round the fields. 
-To take the pumpkins in.  
+That perches in the soul
 
-**I _wondered_ which would miss me least,**. 
-And when Thanksgiving came,  
-If father'd multiply the plates. 
-To make an even sum.  
+And sings the tune without the words
 
-And if my stocking hung too high,  
-**Would it blur the Christmas glee,**. 
-* *That not a Santa Claus could reach* *. 
-The altitude of me?  
+And never stops at all
 
-But this sort grieved myself, and so. 
-I thought how it would be. 
-When just this time, some perfect year,  
-Themselves should come to me.  
+
+And sweetest in the Gale is heard
+
+And sore must be the storm
+
+That could abash the little Bird
+
+That kept so many warm
+
+
+I’ve heard it in the chillest land
+
+And on the strangest Sea
+
+Yet never in Extremity,
+
+It asked a crumb - of me.
+
+
+-- *Emily Dickinson*
